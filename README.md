@@ -1,2 +1,2 @@
 # gjplayz
-<img src="https://t.bkit.co/w_666eeee6d57fb.gif" />
+<img src="https://t.bkit.co/w_666eefd641a00.gif" />
